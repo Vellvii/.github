@@ -1,4 +1,4 @@
-# 🌿 Vellvii
+# 🌿 Vellvii 
 
 A premium wellness brand scaling into the U.S. market.
 
